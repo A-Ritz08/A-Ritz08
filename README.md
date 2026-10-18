@@ -18,10 +18,10 @@
   I'm usually active in VN and Safe servers!
   <br>
   
-  DNIUCF frequently bc I have a bit of a short temper, but can still be friendly and lively if you're cute. Most of the time I'm pretty laid-back 
+  DNIUCF frequently bc I have a bit of a short temper, but can still be friendly and lively if you're cute. Most of the time I'm pretty laid-back.
   <br>
   
-  so feel free to whisper to me! ♡
+  So feel free to whisper to me! ♡
 </p>
 
 <p align="center">
