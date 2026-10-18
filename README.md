@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  <img src="https://giphy.com/gifs/fatui-dottore-genshin-impact-HonXt5UsMHkziUVmrZ" width="85">
+  <img src="https://github.com/A-Ritz08/A-Ritz08/blob/main/giphy.gif" width="220">
 </p>
 <p align="center">
   ୨୧ artist · multifandom · skin maker ୨୧
@@ -33,5 +33,5 @@
 </p>
 
 <p align="center">
-    <img src="https://giphy.com/gifs/fire-genshin-dottore-niHXZMZm7tAaSFtqeR.gif" width="85%">
+    <img src="https://github.com/A-Ritz08/A-Ritz08/blob/main/giphy%20(1).gif" width="220%">
 </p>
