@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  <img src="https://giphy.com/gifs/fatui-dottore-genshin-impact-HonXt5UsMHkziUVmrZ.gif" width="85">
+  <img src="HonXt5UsMHkziUVmrZ.gif" width="85">
 </p>
 
 <p align="center">
@@ -19,7 +19,7 @@
   I'm usually active in VN and Safe servers!
   <br>
   
-  DNIUCF frequently bc I have a bit of a short temper, but can still be friendly and lively if you're cute. Most of the time I'm pretty laid-back ,
+  DNIUCF frequently bc I have a bit of a short temper, but can still be friendly and lively if you're cute. Most of the time I'm pretty laid-back 
   <br>
   
   so feel free to whisper to me! ♡
@@ -34,5 +34,5 @@
 </p>
 
 <p align="center">
-  <img src="https://giphy.com/gifs/fire-genshin-dottore-niHXZMZm7tAaSFtqeR.gif" width="85%">
+  <img src="niHXZMZm7tAaSFtqeR.gif" width="85%">
 </p>
