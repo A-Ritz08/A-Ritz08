@@ -1,16 +1,35 @@
-## Hi there 👋
+<h1 align="center">𐙚 𝑨𝒓𝒊𝒕𝒛 𐙚</h1>
+<p align="center">
+  <i>𝑨-𝑹𝒊𝒕𝒛08· Any ♡</i>
+</p>
 
-<!--
-**A-Ritz08/A-Ritz08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  🎀 ── ⋆⋅☆⋅⋆ ── 🎀
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+  <img src="https://giphy.com/gifs/fatui-dottore-genshin-impact-HonXt5UsMHkziUVmrZ.gif" width="220">
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  ୨୧ artist · multifandom · skin maker ୨୧
+</p>
+
+<p align="center">
+  I'm usually active in VN and Safe servers!
+  <br>
+  DNIUCF frequently bc I have a bit of a short temper, but can still be friendly and lively if you're cute. Most of the time I'm pretty laid-back ,
+  <br>
+  so feel free to whisper to me! ♡
+</p>
+
+<p align="center">
+  ── ⋆⋅☆⋅⋆ ──
+</p>
+
+<p align="center">
+  ୨୧ thanks for visiting my little world ୨୧
+</p>
+<p align="center">
+  <img src="https://giphy.com/gifs/fire-genshin-dottore-niHXZMZm7tAaSFtqeR.gif" width="85%">
+</p>
