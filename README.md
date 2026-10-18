@@ -35,3 +35,5 @@
 <p align="center">
     <img src="https://github.com/A-Ritz08/A-Ritz08/blob/main/giphy%20(1).gif" width="220%">
 </p>
+<p align="center">
+  Have a gud day! 
