@@ -67,7 +67,8 @@
   
   <br> ᯓ★ Kisaki Tetta (Tokyo Revengers).
   
-  <br> I don't watch a ton of anime, though (っ- ‸ - ς).
+  <br> I don't watch a ton of anime, though.  
+  (っ- ‸ - ς)
 
 </p>
 
