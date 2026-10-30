@@ -32,6 +32,7 @@
   
   <p align="center">
 ★───── · ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ · ─────★
+
 "If we're not close, please don't make sex jokes around me. It's a huge pet peeve."
   <br>
     
