@@ -75,13 +75,9 @@
 <p align="center">
  𓆝 𓆟 𓆞 𓆝 𓆟 ━━━★━━━ — — · · ·
   <br>
-  <br>     ·    — END —    ·
-  
-  <br>    ﹌﹌﹌|    ☆★☆★→ ←☆★☆★    |﹌﹌﹌
-
-  <br>
-  
-   <br>   ୨୧ Thanks for reading through!♡ ୨୧
+  <br>    ·    — END —    ·
+  <br>  
+୨୧ Thanks for reading through! ୨୧   
 
 </p>
 
@@ -90,5 +86,5 @@
 </p>
 <p align="center">
    <br> · Hope we can become good friends! :3
-   <br>· Have a wonderful day! 🫂✨
+   <br> · Have a wonderful day! 🫂✨
 
