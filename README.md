@@ -79,8 +79,7 @@
 
   <br>
   
-━━━:
-୨୧ Thanks for reading through!♡ ୨୧
+   <br>   ୨୧ Thanks for reading through!♡ ୨୧
 
 </p>
 
